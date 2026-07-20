@@ -1,1 +1,1 @@
-Meet [Syon](http://syond.framer.website/) and find the rest on [X](https://x.com/syondukea).
+Meet [Syon](http://syond.framer.website/) and see what's next on [X](https://x.com/syondukea).
